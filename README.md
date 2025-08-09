@@ -2,6 +2,8 @@
 Civil engineering
 # Day1 
 ## 30th of july 
-My first day in GNDEC started with path and shabad kirtan in college's gurudwara sahid. The atmosphere was calm and filled with position vibes. The raggi singh was performing very good kirtan. After ardas we got refreshment and then we arrived in the college's auditorium. we waited for 15 minutes and after that principal sir and cheif guest entered into auditorium. First speech was given by principal sir, they told us college history and previous performance of college. Then chief guest maheshinder singh president of Nanakana sahib trust came on stage. They told us brief history of college. They shares his life experience with us. After lunch break, we took a round of our labs and some information about our courses.
+My first day in GNDEC was started with path an kirtan at college's gurudwara sahib. The atmosphere was calm and filled with position vibes. Raggi singh did very melodious kirtan at gurudwara sahib. After ardas we took our refreshment. 
+According to schedule, Our next session was at college's auditorium. We wait for 15 minutes, then principal sir and chief guest S. Maheshinder singh grewal entered in auditorium. The first speech was given by principal sir. Principal sir told us background and achievements of our college. Then Maheshinder singh grewal came on stage . He told us political background of college and experience of his life. 
+After lunch break, We visit our course related labs and overview of 4 years of our course. 
 # Day 2 
 ## 1st august 2025
